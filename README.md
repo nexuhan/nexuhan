@@ -1,1 +1,1 @@
-## Follow my [YouTube](https://youtube.com/@nexuhan) channel (WIP)!
+### Follow my WIP [YouTube](https://youtube.com/@nexuhan) channel!
